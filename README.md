@@ -1,2 +1,2 @@
 # Story
-My masterpiece. In story there is 5 chapters.
+My masterpiece. In this story there is 5 chapters.
